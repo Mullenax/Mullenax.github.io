@@ -7,7 +7,7 @@ Master of Business Administration, Business Administration Spring 2013
 
 · Specialization: Organizational Development
 
-· Overall GPA: 3.58
+· Overall GPA: 3.58 
 
 The University of Texas at Tyler
 
