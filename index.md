@@ -35,3 +35,4 @@ Volunteered aid: including providing meals, lawn maintenance, and community outr
 <b>ADDITIONAL</b><br>
 Technical Skills: Microsoft Office Word, Excel, PowerPoint, Adobe Photoshop<br>
 Work Eligibility: Authorized to work in the U.S. with no restrictions<br>
+![Designer_Core_2021](https://github.com/Mullenax/Mullenax.github.io/assets/142950687/d07efb62-239d-4a1f-812c-b89e89dc5514)
